@@ -1,8 +1,8 @@
 <p align="center">
-<img width="800" alt="imagem_2026-09-08_114744431" src="https://github.com/user-attachments/assets/3db6c53f-60ad-45d0-bdee-f780e5ca6b32" />
+<img width="300" alt="940_Sem_Titulo_20260918161835" src="https://github.com/user-attachments/assets/6bf86d56-7eb1-48d5-90d5-152abe8c2127" />
 
 <p align="center"> 
-biggest fumble oat
+das meh and da cutie
 
 <p align="center"> 
 <a href="https://github.com/kawaiirazorblades">main</a>
